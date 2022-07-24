@@ -1,1 +1,0 @@
-# reganas-reganas.gethub.io
